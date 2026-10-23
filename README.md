@@ -221,4 +221,4 @@ PicBlock is offered as a **complete free version** with all features and updates
 Don't wait any longer—**download PicBlock now** and safeguard your family's online experience!
 
 ---
-**Last updated:** 2026-10-23 09:49:10 UTC
+**Last updated:** 2026-10-23 14:47:07 UTC
